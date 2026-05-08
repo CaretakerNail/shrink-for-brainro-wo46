@@ -1,4 +1,4 @@
-
+Experience shrink for brainrots like never before with shrink for brainrots Script secure, the #1 Script. Includes invisibility and teleport for
 
 
 
